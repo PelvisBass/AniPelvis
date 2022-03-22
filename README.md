@@ -1,5 +1,5 @@
 # AniPelvis
-All of this sucks. Will update once I have the chance.
+All of this sucks. Will update once I have the chance / Get back into fansubbing.
 
 All of my sub/encoding Work.
 None of the translations belong to me but are public, are from various fansub groups, or I was part of the group.
